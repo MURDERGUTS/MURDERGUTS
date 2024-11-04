@@ -2,10 +2,6 @@ hey dudes
 
 wanted github to claim my user
 
-call me Steven or Red, whatever
-
-he/it or xe/xyrs
-
 im on ponytown alot
 
 please. homestuckies. dni, ive got-
