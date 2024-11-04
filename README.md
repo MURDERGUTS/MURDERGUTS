@@ -4,8 +4,7 @@ wanted github to claim my user
 
 im on ponytown alot
 
-please. homestuckies. dni, ive got-
-pretty bad experiences from yous.
+please. homestuckies. dni, ive got pretty bad experiences from yous.
 
 multi-fandom dude
 
