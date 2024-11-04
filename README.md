@@ -15,3 +15,4 @@ so feel free to talk to me or int (on pt)
 
 ask me any questions regarding more info
 
+clueless asf, so ion have a profile yet or any funky designs.
