@@ -2,7 +2,7 @@ hey dudes
 
 wanted github to claim my user
 
-call me Steven or Red whatever
+call me Steven or Red, whatever
 
 he/it or xe/xyrs
 
@@ -13,11 +13,10 @@ pretty bad experiences from yous.
 
 multi-fandom dude
 
-c+h or int is always welcome.
+c+h or int is always welcome. (on ponytown)
+
+im friendly, mainly friendly.
+so feel free to talk to me or int (on pt)
 
 ask me any questions regarding more info
 
-<!---
-MURDERGUTS/MURDERGUTS is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
