@@ -16,3 +16,5 @@ so feel free to talk to me.
 ask me any questions regarding more info.
 
 -☆ inspiration is fine, just have to ask me first please. <3
+
+i honestly go afk alot in-game, unless im with a friend. so whisper me to talk whenever i am. :3
