@@ -11,7 +11,8 @@ multi-fandom dude
 c+h or int is always welcome.
 
 im friendly, mainly friendly.
-so feel free to talk to me or int.
+so feel free to talk to me.
 
 ask me any questions regarding more info.
-inspiration is fine, just have to ask me first please. <3
+
+-☆ inspiration is fine, just have to ask me first please. <3
