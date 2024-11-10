@@ -1,10 +1,10 @@
 hey... man's.
 
-wanted github to claim my user. mainly using this for ponytown.
+wanted github to claim my user. mainly using this for ponytown. not gonna put actual work into it i guess </3
 
 im on the game alot.
 
-please. homestuckies. dni, ive got pretty bad experiences from yous.
+please. homestuckies. dni, ive got pretty bad experiences from yous, i dont mean any offense!!
 
 multi-fandom dude
 
