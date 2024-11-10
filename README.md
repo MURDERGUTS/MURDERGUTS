@@ -1,4 +1,4 @@
-hey... man's.
+hey... man's. im new to github :3
 
 wanted github to claim my user. mainly using this for ponytown. not gonna put actual work into it i guess </3
 
