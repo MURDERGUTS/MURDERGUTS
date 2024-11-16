@@ -19,6 +19,6 @@ ask me any questions regarding more info.
 
 just so you know, i do NOT tint. its my own style ^_^
 
-i honestly go afk alot in-game, unless im with a friend. so whisper me to talk whenever i am!!!
+i honestly go afk alot in-game, unless im with a friend. so whisper me to talk whenever i am!!! (ps; i can be AFK for like HOURS.)
 
 ps; when interacting with me, PLEASE do not make your first impression weird. im weird myself, but weird to an extent. so please dont be too weird, i get pretty uncomfortable easily!!! ill eventually get comfortable with you if we know eachother long enough <3
