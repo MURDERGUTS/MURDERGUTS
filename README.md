@@ -8,7 +8,7 @@ please. homestuckies. dni, ive got pretty bad experiences from yous, i dont mean
 
 multi-fandom dude
 
-c+h or int is always welcome.
+c+h or int is always welcome. can be considered as a cuddle buddy atp lol
 
 im friendly, mainly friendly.
 so feel free to talk to me. (would appreciate it greatly! im really bored on PT and im trying my best to socialize.)
