@@ -17,7 +17,7 @@ ask me any questions regarding more info.
 
 -☆ inspiration is fine, just have to ask me first please! ♡
 
-just so you know, i do NOT tint. its my own style ^_^
+just so you know, i do NOT tint. its my own style. and i don't have a consistent style, i change my styles alot! ^_^
 
 i honestly go afk alot in-game, unless im with a friend. so whisper me to talk whenever i am!!! (ps; i can be AFK for a pretty long time!^^)
 
