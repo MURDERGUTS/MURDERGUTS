@@ -4,7 +4,7 @@ wanted github to claim my user. mainly using this for ponytown. not gonna put ac
 
 im on the game alot.
 
-please. homestuckies. dni, ive got pretty bad experiences from yous, i dont mean any offense!!
+please. homestuckies. dni, ive got pretty bad experiences from yous, i dont mean any offense!! (gotta make it real clear.)
 
 multi-fandom dude
 
