@@ -1,6 +1,6 @@
 hey... man's. im new to github :3
 
-wanted github to claim my user. mainly using this for ponytown. not gonna put actual work into it i guess </3
+wanted github to claim my user. mainly using this for ponytown. not gonna put actual work into this i guess </3
 
 im on the game alot.
 
