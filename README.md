@@ -1,10 +1,8 @@
-hey... man's. im pretty new to github :3
+howdy, partners! im pretty new to github 'ere.
 
-wanted github to claim my user. mainly using this for ponytown. not gonna put actual work into this i guess </3
+originally wanted github to claim my user. (that i always use) mainly using this for ponytown. not gonna put actual work into my file.
 
-im on the game alot.
-
-please. homestuckies. dni, ive got pretty bad experiences from yous, i dont mean any offense!! (gotta make it real clear.)
+im on the game alot!
 
 multi-fandom dude (in my spongebob phase atm lol)
 
