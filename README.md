@@ -1,4 +1,4 @@
-hey... man's. im new to github :3
+hey... man's. im pretty new to github :3
 
 wanted github to claim my user. mainly using this for ponytown. not gonna put actual work into this i guess </3
 
@@ -6,7 +6,7 @@ im on the game alot.
 
 please. homestuckies. dni, ive got pretty bad experiences from yous, i dont mean any offense!! (gotta make it real clear.)
 
-multi-fandom dude
+multi-fandom dude (in my spongebob phase atm lol)
 
 c+h or int is always welcome, do not hesitate!! im not rude, just socially anxious.
 
