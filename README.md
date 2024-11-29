@@ -13,7 +13,7 @@ so feel free to talk to me. (would appreciate it greatly! im really bored on PT 
 
 ask me any questions regarding more info.
 
--☆ inspiration is fine, just have to ask me first please! ♡
+[IMPORTANTLY]: Do NOT copy me or take any inspiration, please. im trying to experiment and i would very much appreciate if you don't copy or take any inspiration./lh
 
 just so you know, i do NOT tint. its my own style. and i don't have a consistent style, i change my styles alot! ^_^
 
