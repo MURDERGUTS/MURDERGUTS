@@ -1,9 +1,3 @@
-![1733099527248.png](https://github.com/user-attachments/assets/28c4d424-5d52-4f39-9247-923cd5adafc5)
-
-
-
-
-
 howdy, partners! im pretty new to github 'ere.
 
 originally wanted github to claim my user. (that i always use) mainly using this for ponytown. not gonna put actual work into my file.
