@@ -1,5 +1,5 @@
 howdy, partners! im pretty new to github 'ere.
-look at these silly guys !!!! :3
+look at these silly guys !!!! :3 (big fat fan of the cult family)
 
 
 
