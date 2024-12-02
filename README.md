@@ -1,4 +1,4 @@
-howdy, partners! im pretty new to github 'ere.
+o'howdy, partners! im pretty new to github 'ere.
 (big fat fan of the cult family)
 
 
