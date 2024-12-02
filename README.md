@@ -1,10 +1,13 @@
-![1733100976080.png](https://github.com/user-attachments/assets/d77425df-0255-4a87-85b7-41de4b240575)
-
-
-
-
-
 howdy, partners! im pretty new to github 'ere.
+
+
+![1733100976080.png](https://github.com/user-attachments/assets/d77425df-0255-4a87-85b7-41de4b240575)
+![1733101048805.png](https://github.com/user-attachments/assets/7c566ec6-b394-4d3b-8b44-eca02d38c0ee)
+![1733100992304.png](https://github.com/user-attachments/assets/67114ca7-da2a-49cb-8fc8-a69aca081b88)
+
+
+
+
 
 originally wanted github to claim my user. (that i always use) mainly using this for ponytown. my ass learned how to put images now !!!!
 
