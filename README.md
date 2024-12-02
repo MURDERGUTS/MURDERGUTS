@@ -1,5 +1,5 @@
 howdy, partners! im pretty new to github 'ere.
-look at these silly guys
+look at these silly guys !!!! :3
 
 
 ![1733100976080.png](https://github.com/user-attachments/assets/d77425df-0255-4a87-85b7-41de4b240575)
