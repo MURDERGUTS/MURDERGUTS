@@ -1,7 +1,4 @@
-![1733100992304.png](https://github.com/user-attachments/assets/67114ca7-da2a-49cb-8fc8-a69aca081b88)
 ![1733100976080.png](https://github.com/user-attachments/assets/d77425df-0255-4a87-85b7-41de4b240575)
-![1733100961914.png](https://github.com/user-attachments/assets/6b015fe9-747c-42b2-a516-47acd01f2eb2)
-
 
 
 
