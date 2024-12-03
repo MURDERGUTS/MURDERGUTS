@@ -32,6 +32,12 @@ i honestly go afk alot in-game, unless im with a friend. so whisper me to talk w
 
 and i try to not be AFK all the time aswell.
 
+how to int: (for ponytown)
+if my name says "dni" following "doing homework, busy/afk" etc, please do. i dont want anyone to disturb me at the moment. (even friends), it depends on how my mood is.
+i sometimes int first, sometimes dont, depends on how my mood is again(due to my social anxiety that prevents me sometimes or out of pure nervousness)
+i can be rather questioning upon why is someone talking to me out of nowhere(sometimes) without reason, so please do consider to tell me why you randomly walked up to me and started talking.
+i tend to be afk(again, per to say) so, just whisper me if im unable to respond to any of your messages(i can respond randomly out of nowhere though!)
+
 ps; when interacting with me, PLEASE do not make your first impression weird. im weird myself, but weird to an extent. so i beg to differ, dont be too weird, i get pretty uncomfortable easily!!! ill eventually get comfortable with you if we know eachother long enough though <3
 
 ![1733100976080.png](https://github.com/user-attachments/assets/d77425df-0255-4a87-85b7-41de4b240575)
