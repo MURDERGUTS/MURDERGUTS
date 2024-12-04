@@ -15,7 +15,7 @@ originally wanted github to claim my user. (that i always use) mainly using this
 
 im on the game alot!
 
-multi-fandom dude (in my spongebob phase atm lol)
+multi-fandom dude
 
 c+h or int is always welcome, do not hesitate!! im not rude, just socially anxious.
 
