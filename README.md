@@ -17,8 +17,6 @@ im on the game alot!
 
 multi-fandom dude
 
-c+h or int is always welcome, do not hesitate!! im not rude, just socially anxious.
-
 im friendly, mainly friendly.
 so feel free to talk to me. (would appreciate it greatly! im really bored on PT and im trying my best to socialize.)
 
