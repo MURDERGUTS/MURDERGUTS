@@ -41,3 +41,5 @@ ps; when interacting with me, PLEASE do not make your first impression weird. im
 ![1733100976080.png](https://github.com/user-attachments/assets/d77425df-0255-4a87-85b7-41de4b240575)
 ![1733107714097.png](https://github.com/user-attachments/assets/3ae10fc1-3220-4e29-aa2c-05a52678c3fc)
 ![1733107729407.png](https://github.com/user-attachments/assets/bb59f575-f37d-466d-a975-a09d1db10909)
+![1734045619373.png](https://github.com/user-attachments/assets/bf133508-e9f0-482a-b1ee-c657216056b1)
+
