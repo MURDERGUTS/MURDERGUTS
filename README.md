@@ -1,5 +1,4 @@
-
-o'howdy, partners! im pretty new to github 'ere.
+howdy, partners!! im pretty new to github 'ere.
 (big fat fan of the cult family, ps; all of the cult members shown are my favorite ones!)
 
 
@@ -11,11 +10,11 @@ o'howdy, partners! im pretty new to github 'ere.
 
 
 
-originally wanted github to claim my user. (that i always use) mainly using this for ponytown. my ass learned how to put images now !!!!
-
-im on the game alot!
+originally wanted github to claim my user. (that i always use) mainly using this for ponytown.  im on the game alot!
 
 multi-fandom dude
+
+if you wanna have a chat with me or something, my discord is legitimately my username
 
 im friendly, mainly friendly.
 so feel free to talk to me. (would appreciate it greatly! im really bored on PT and im trying my best to socialize.)
