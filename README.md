@@ -21,9 +21,9 @@ so feel free to talk to me. (would appreciate it greatly! im really bored on PT 
 
 ask me any questions regarding more info.
 
-[IMPORTANTLY]: Do NOT copy me or take any inspiration, please. im trying to experiment and i would very much appreciate if you don't copy or take any inspiration./lh
+[IMPORTANTLY]: inspiration is a-okay. just dont copy my shit pixel for pixel or post w/o permission(even though i wont agree either way)
 
-just so you know, i do NOT tint. its my own style. and i don't have a consistent style, i change my styles alot! ^_^
+just so you know, i do NOT tint(deadass i dont know how) its my own style. and i don't have a consistent style, i change my styles a lot because of that! ^_^
 
 i honestly go afk alot in-game, unless im with a friend. so whisper me to talk whenever i am!!! (ps; i can be AFK for a pretty long time!^^)
 
