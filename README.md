@@ -1,5 +1,5 @@
-howdy, partners!! im pretty new to github 'ere.
-(big fat fan of the cult family, ps; all of the cult members shown are my favorite ones!)
+waszzup... im pretty new to github 'ere.
+(a fan of the cult family ps; all of the cult members shown are my favorite ones)
 
 
 
