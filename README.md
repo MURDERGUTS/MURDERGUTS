@@ -14,6 +14,8 @@ originally wanted github to claim my user. (that i always use) mainly using this
 
 multi-fandom dude
 
+my roblox user is unfortunately Galaxina_kawaii 💔
+
 if you wanna have a chat with me or something, my discord is legitimately my username
 
 im friendly, mainly friendly.
