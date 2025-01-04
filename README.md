@@ -1,5 +1,6 @@
 waszzup... im pretty new to github 'ere.
 (a fan of the cult family ps; all of the cult members shown are my favorite ones)
+my roblox user is unfortunately Galaxina_kawaii 💔
 
 
 
@@ -13,8 +14,6 @@ waszzup... im pretty new to github 'ere.
 originally wanted github to claim my user. (that i always use) mainly using this for ponytown.  im on the game alot!
 
 multi-fandom dude
-
-my roblox user is unfortunately Galaxina_kawaii 💔
 
 if you wanna have a chat with me or something, my discord is legitimately my username
 
