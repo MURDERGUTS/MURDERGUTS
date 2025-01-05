@@ -1,7 +1,7 @@
 waszzup... im pretty new to github 'ere.
 (a fan of the cult family ps; all of the cult members shown are my favorite ones)
 
-my roblox user is unfortunately Galaxina_kawaii 💔 plsls friend me on there, too
+my roblox user is Goldimire 💔 plsls friend me on there, too
 
 
 
