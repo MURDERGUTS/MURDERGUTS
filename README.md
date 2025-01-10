@@ -27,7 +27,7 @@ ask me any questions regarding more info.
 
 just so you know, i do NOT tint(deadass i dont know how) its my own style. and i don't have a consistent style, i change my styles a lot because of that! ^_^
 
-i honestly go afk alot in-game, unless im with a friend. so whisper me to talk whenever i am!!! (ps; i can be AFK for a pretty long time!^^)
+i honestly go afk alot in-game(what my status says), unless im with a friend. so whisper me to talk whenever i am!!! (ps; i can be AFK for a pretty long time!^^)
 
 and i try to not be AFK all the time aswell.
 
