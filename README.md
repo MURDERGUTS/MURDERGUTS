@@ -17,3 +17,5 @@ my roblox user is Goldimire 💔 plsls friend
 me on there, too
 
 ![Messenger_creation_64A81670-1A73-4F1E-98C7-AD1DAC531A67.gif](https://github.com/user-attachments/assets/eb9ef112-8cc6-47d4-9f24-8efe8c81022d)
+
+https://tenor.com/view/iloveyou-sawnoob-trud-therobloxiauntildawn-roblox-gif-4324209713753471107![17366595716959019250011084022174.gif](https://github.com/user-attachments/assets/e5a35cce-6e35-4172-aba6-dcafd0bb2df5)
