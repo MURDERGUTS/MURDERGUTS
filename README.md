@@ -16,6 +16,6 @@ just so you know, i do NOT tint(deadass i dont know how) its my own style. and i
 my roblox user is Goldimire 💔 plsls friend 
 me on there, too
 
-![Messenger_creation_64A81670-1A73-4F1E-98C7-AD1DAC531A67.gif](https://github.com/user-attachments/assets/eb9ef112-8cc6-47d4-9f24-8efe8c81022d)
+![Messenger_creation_85FF6817-819A-493E-A03F-2E7A1BA4286D.gif](https://github.com/user-attachments/assets/0c925708-f21b-4366-a92f-8584d81afeed)
 
 lil dude dancing
