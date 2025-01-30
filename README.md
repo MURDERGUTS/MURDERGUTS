@@ -1,3 +1,5 @@
+please dont ask why my ponies names are just "mmmmmmmmmmmmmmmmmmm"
+
 waszzup !!! originally wanted github to claim my user. (that i always use) mainly using this for ponytown.  im on the game alot!
 
 multi-fandom dude
