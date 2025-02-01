@@ -13,7 +13,4 @@ ask me any questions regarding more info.
 
 just so you know, i do NOT tint(deadass i dont know how) its my own style. and i don't have a consistent style, i change my styles a lot because of that! ^_^
 
-my roblox user is Goldimire 💔 plsls friend 
-me on there, too
-
 MY GITHUB IS SO EMPTY
