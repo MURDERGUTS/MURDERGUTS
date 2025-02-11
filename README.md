@@ -1,5 +1,7 @@
 the people in the roblox area have such beautiful and amazing styles sobs
 
+please tell me if my style looks similar to yours, im trying to expand my style more and i dont want to accidentally copy someone else's style
+
 waszzup !!! originally wanted github to claim my user. (that i always use) mainly using this for ponytown.  im on the game alot!
 
 multi-fandom dude
