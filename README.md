@@ -8,8 +8,6 @@ waszzup !!! originally wanted github to claim my user. (that i always use) mainl
 
 multi-fandom dude
 
-if you wanna have a chat with me or something, my discord is legitimately my username (aka murderguts)
-
 im friendly, mainly friendly.
 so feel free to talk to me. (would appreciate it greatly! im really bored on PT and im trying my best to socialize.)
 
