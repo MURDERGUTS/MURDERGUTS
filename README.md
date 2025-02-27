@@ -1,5 +1,7 @@
 the people in the roblox area have such beautiful and amazing styles sobs
 
+roblox character cosplayers ily/p
+
 please tell me if my style looks similar to yours, im trying to expand my style more and i dont want to accidentally copy someone else's style
 
 just so you know, i do NOT tint(deadass i dont know how) its my own style. and i don't have a consistent style, i change my styles a lot because of that! ^_^
