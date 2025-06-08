@@ -1,4 +1,4 @@
-[I SADLY PLAY ON MOBILE]
+[mobile player]
 
 -roblox character cosplayers you guys are so cool!! awesome cosplays !!!! ❤️
 
