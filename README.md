@@ -1,3 +1,5 @@
+<div class="tenor-gif-embed" data-postid="3216879523797571607" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/crowpunk-blocktales-block-tales-cruel-king-cruel-king-block-tales-gif-3216879523797571607">Crowpunk Blocktales Sticker</a>from <a href="https://tenor.com/search/crowpunk-stickers">Crowpunk Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
+
 -roblox character cosplayers you guys are so cool!! awesome cosplays !!!! ❤️
 
 please tell me if my style looks similar to yours, im trying to expand my style more and i dont want to accidentally copy someone else's style !!!! :(
