@@ -1,5 +1,3 @@
-![crowpunk-blocktales.gif](https://github.com/user-attachments/assets/6f13c8ec-bbd8-41bc-890b-f87c328ae357)
-
 -roblox character cosplayers you guys are so cool!! awesome cosplays !!!! ❤️
 
 please tell me if my style looks similar to yours, im trying to expand my style more and i dont want to accidentally copy someone else's style !!!! :(
