@@ -1,5 +1,3 @@
-![crowpunk-blocktales.gif](https://github.com/user-attachments/assets/d9007f56-dd73-44bc-adee-3e9d89f2f47b)
-
 -roblox character cosplayers you guys are so cool!! awesome cosplays !!!! ❤️
 
 please tell me if my style looks similar to yours, im trying to expand my style more and i dont want to accidentally copy someone else's style !!!! :(
@@ -7,7 +5,7 @@ please tell me if my style looks similar to yours, im trying to expand my style 
 fun fact! >
 i don't have a consistent style, i change my style based on the cosplay im making! ^_^
 
-waszzup !!! originally wanted github to be the original of MURDERGUTS (a username i always use on a lot of other social medias) mainly using this for ponytown.  im on the game alot!
+sup !!! originally wanted github to be the original of MURDERGUTS (a username i always use on a lot of other social medias) mainly using this for ponytown.  im on the game alot!
 
 im a multi-fandom(-er)
 
@@ -18,4 +16,4 @@ ask me any questions regarding more info.!
 
 [IMPORTANTLY]: inspiration is a-okay. just dont copy my style pixel for pixel or post it because ive seen people do that like why do you even do it???. . ./gen ask perms to the people u post.../sg [<3]
 
-MY GITHUB IS SO EMPTY .. frowns.
+MY GITHUB IS SO EMPTY (mobile player here..)
