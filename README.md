@@ -16,4 +16,4 @@ ask me any questions regarding more info.!
 
 [IMPORTANTLY]: inspiration is a-okay. just dont copy my style pixel for pixel or post it because ive seen people do that like why do you even do it???. . ./gen ask perms to the people u post.../sg [<3]
 
-MY GITHUB IS SO EMPTY (mobile player here..)
+MY GITHUB IS SO EMPTY :( (mobile player here..<)
