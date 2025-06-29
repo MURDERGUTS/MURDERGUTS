@@ -4,7 +4,7 @@
 ／|￣∪￣ ￣ |＼／
   |＿＿_＿＿|／ 
 
-        ₊˚｡⋆❆⋆｡˚₊ 𝙲𝙰𝙻𝙻 𝙼𝙴 𝙲𝚁𝚄𝙴𝙻 𝙺𝙸𝙽𝙶! 
+        ₊˚｡⋆❆⋆｡˚₊ call me cruel king! 
 
 Info/Q&A:
 hello, hello!! yeah, im the guy who doesnt usually speak on pt. its me hey
