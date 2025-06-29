@@ -5,7 +5,7 @@
         ○☆⋆❄️⋆☆○ call me cruel king! 
 
 Info/Q&A:
-hello, hello!! yeah, im the guy who doesnt usually speak on pt. its me hey
+hello, hello!! yeah, im the cruel king cosplayer. its me hey
 
 - Is inspiration okay?
 Yes! taking inspo from me is totally fine! Just please, don't copy my pony <3
