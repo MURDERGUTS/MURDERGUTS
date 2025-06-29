@@ -1,10 +1,10 @@
   
-　　　/)＿/)☆ 𝙃𝙚𝙡𝙡𝙤! 
-  ／(๑^᎑^๑)っ ＼
-／|￣∪￣ ￣ |＼／
-  |＿＿_＿＿|／ 
+　　    　/)＿/)☆ 𝙃𝙚𝙡𝙡𝙤! 
+      ／(๑^᎑^๑)っ ＼
+     ／|￣∪￣ ￣ |＼／
+       |＿＿_＿＿|／ 
 
-        ₊˚｡⋆❄️⋆｡˚₊ call me cruel king! 
+        ○☆⋆❄️⋆☆○ call me cruel king! 
 
 Info/Q&A:
 hello, hello!! yeah, im the guy who doesnt usually speak on pt. its me hey
