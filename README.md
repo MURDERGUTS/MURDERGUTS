@@ -2,10 +2,10 @@
 　　    　
         (๑^᎑^๑)っ ☆
 
-        ○☆⋆❄️⋆☆○ call me cruel king! 
+        ✍︎✰⋆𐂂⋆✰✍︎ call me Vincent! 
 
 Info/Q&A:
-hello, hello!! yeah, im the cruel king cosplayer. its me hey
+wassup wassup, hey hey. this is just a minor QNA ->
 
 - Is inspiration okay?
 Yes! taking inspo from me is totally fine! Just please, don't copy my pony <3
@@ -20,6 +20,6 @@ YES! i love talking about almost anything! im up to be a listener or a yapper
 - Are you okay with personal topics first hand?
 Unfortunately, no. i dont really feel comfortable talking about personal topics if we've only been friends for a couple of days. and it depends if im comfortable around you too ^_^!
 
-• i LOVE roblox myths.
+• i LOVE roblox myths and slasher movies!!
 
 that's all i could really think of. Just ask me any questions on pt for more info :]
