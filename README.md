@@ -1,4 +1,4 @@
-  
+IM MAKING A SP SOON  
 　　    　
         (๑^᎑^๑)っ ☆
 
@@ -23,5 +23,3 @@ Unfortunately, no. i dont really feel comfortable talking about personal topics 
 • i LOVE roblox myths and slasher movies!!
 
 that's all i could really think of. Just ask me any questions on pt for more info :]
-
-boring github because i absolutely have no idea how to manage an sp
