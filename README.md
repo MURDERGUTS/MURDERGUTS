@@ -1,4 +1,4 @@
-im a mobile player cries
+im a mobile player cries (won't really be updating this)
 　　    　
         
 
