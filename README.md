@@ -4,7 +4,7 @@ im a mobile player cries (won't really be updating this)
 
         (๑^᎑^๑)っ ☆
 
-        ✍︎✰⋆𐂂⋆✰✍︎ call me Vincent! 
+        -> call me Vincent! 
 
 Info/Q&A:
 wassup wassup, hey hey. this is just a minor QNA -> (more on my sp!!!)
