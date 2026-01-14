@@ -5,7 +5,7 @@ im a mobile player cries
 
 "A freak of nature they say,"
 
-![ei_1768357894926-removebg-preview.png](https://github.com/user-attachments/assets/93867378-261c-4f6e-a7a3-a33efe2dcda6)
+
 
 
 inf:
@@ -13,6 +13,8 @@ inf:
 Yes! taking inspo from me is totally fine! Just please, don't copy my pony <3
 
 • i LOVE roblox myths and slasher movies!!
+
+![ei_1768357894926-removebg-preview.png](https://github.com/user-attachments/assets/93867378-261c-4f6e-a7a3-a33efe2dcda6)
 
 
 
