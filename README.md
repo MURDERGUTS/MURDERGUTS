@@ -1,3 +1,5 @@
+wassup im JIGS/JAGGY (aka jagger)
+
 im a mobile player cries
 go check out strawpages for more info...
 
