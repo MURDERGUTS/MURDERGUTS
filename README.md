@@ -1,4 +1,4 @@
-wassup im JIGS/JIGGY (aka jagger)
+wassup!! welcome hi
 
 im a mobile player cries
 go check out strawpages for more info...
