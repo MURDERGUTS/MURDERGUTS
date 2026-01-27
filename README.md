@@ -12,7 +12,7 @@ Yes! taking inspo from me is totally fine! Just please, don't copy my pony <3
 
 
 
-    • do talk to me please i need more friends!!! i lalalove seeing people who have the same interests as me ^^ either in pt or ata!!
+• do talk to me please i need more friends!!! i lalalove seeing people who have the same interests as me ^^ either in pt or ata!!
 
 
 
