@@ -5,8 +5,7 @@ go check out strawpages for more info...
 
 2inf:
 - Is inspiration okay?
-Yes! taking inspo from me is totally fine! Just please, don't copy my pony <3
-(even though i change styles so much. i cannot keep a consistent style)
+UPDATE: ask me personally to take inspiration, please! i dont really want VERY identical styles to see inspired by mine.
 
 • i LOVE roblox myths and slasher movies!!
 
