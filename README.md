@@ -1,4 +1,5 @@
-wassup!! welcome hi!!!!
+wassup!! welcome hi!!!
+I LOVE Egyptian mythology
 
 im a mobile player cries
 go check out strawpages for more info...
