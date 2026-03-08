@@ -1,6 +1,6 @@
 wassup!! welcome hi!!!
 
-im a mobile player cries
+im a mobile player cries (I HAVE OTHER DEVICES, so no i do not just stare at my screen whilst being afk/busy 😭)
 go check out strawpages for more info...
 
 2inf:
