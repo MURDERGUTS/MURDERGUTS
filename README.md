@@ -3,7 +3,7 @@ go check out strawpages for more info...
 
 inf:
 - Is inspiration okay?
-ofc!!!! but i dont really want VERY identical styles to see inspired by mine. my style is definitely not consistent and i got so much shading styles, as i am experimenting!
+ofc!!!! but i dont really want VERY identical styles to see inspired by mine or any copies... my style is definitely not consistent and i got so much shading styles, as i am experimenting!
 
 • i LOVE roblox myths and slasher movies!!
 
