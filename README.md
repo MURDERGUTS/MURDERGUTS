@@ -1,3 +1,5 @@
+check straws pls theyre cooler
+
 - Is inspiration okay?
 ofc!!!! but i dont really want VERY identical styles to see inspired by mine or any copies... my style is definitely not consistent and i got so much shading styles, as i am experimenting!
 
