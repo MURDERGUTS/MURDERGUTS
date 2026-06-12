@@ -1,4 +1,4 @@
-check straws pls theyre cooler
+call me Jagger or Jigs!
 
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting!!!
