@@ -1,7 +1,7 @@
 call me Jagger or Jigs!
 
 - Is inspiration okay?
-Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting!!!
+Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting!!! i dont know how to tint, as i am mobile as well. i just go with whatever color suits best, i dont have any sense of knowledge on color theory as well sobs
 
 • i LOVE roblox myths and slasher movies!!
 
