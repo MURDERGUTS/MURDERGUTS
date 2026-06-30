@@ -9,6 +9,6 @@ i dont know how to tint, as i am mobile. i just go with whatever color suits bes
 
 
 • do talk to me please i need more friends!!! i lalalove seeing people who have the same interests as me ^^ either in pt or ata!!
-
+do be very cautious and ask questions about me.
 
 
