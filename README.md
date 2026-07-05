@@ -3,6 +3,7 @@ call me Jagger or Jigs!
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting!!! the way i shade depends on the character thats why it changes-_-
 i dont know how to tint, as i am mobile. i just go with whatever color suits best, i dont have any sense of knowledge on color theory as well sobs
+- if you c+h with me, please note, I will go offline due to the fact I might be taking a nap or doing something!
 
 • i LOVE roblox myths and slasher movies!!
 
