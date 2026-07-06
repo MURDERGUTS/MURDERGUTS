@@ -1,4 +1,4 @@
-call me Jagger or Rufus!
+call me Rufus!
 
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting!!! the way i shade depends on the character thats why it changes-_-
