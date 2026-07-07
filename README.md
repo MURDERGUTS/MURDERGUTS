@@ -1,5 +1,6 @@
 call me Rufus!
 remaking main strawpage soon
+im always alone because I do not have any friends, I only have a single friend irl ^^"...
 
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting!!! the way i shade depends on the character thats why it changes-_-
