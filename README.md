@@ -1,5 +1,4 @@
 call me Rufus!
-remaking main strawpage soon
 im always alone because I do not have any friends, I only have a single friend irl ^^"...
 
 - Is inspiration okay?
