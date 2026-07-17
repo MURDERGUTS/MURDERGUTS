@@ -4,7 +4,7 @@ pt pls fix your game. thats why i randomly leave 😭
 
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting (a lot)!!! the way i shade depends on the character thats why it changes.
-i dont know how to tint, as i am mobile. i just go with whatever color suits best, i dont have any sense of knowledge on color theory as well sobs... pls dont ask for tips (I REALLY DONT KNOW WHAT TO SAY IM SORRY!!) but I'll do give advice if asked nicely, just pick a shading style you have seen from me. you can ask for advice in my ata or pt!
+i dont know how to tint, as i am mobile (and i dont think i want to learn how the options are very limited for mobile users/i dont wanna spend time 'tinting/filtering' my pony and copying every color, replacing the original ones). i just go with whatever color suits best, i dont have any sense of knowledge on color theory as well sobs... pls dont ask for tips (I REALLY DONT KNOW WHAT TO SAY IM SORRY!!) but I'll do give advice if asked nicely, just pick a shading style you have seen from me. you can ask for advice in my ata or pt!
 
 • i LOVE roblox myths (i do not support some of them. my personal favorite is dr mosen) and slasher movies!!
 
