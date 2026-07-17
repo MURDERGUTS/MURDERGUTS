@@ -1,5 +1,6 @@
 call me Rufus!
-my game crashes/glitches occasionally pt pls fix your game. thats why i randomly leave im sorry people who c+h me 😭
+my game crashes/glitches occasionally,,
+pt pls fix your game. thats why i randomly leave 😭
 
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting (a lot)!!! the way i shade depends on the character thats why it changes.
