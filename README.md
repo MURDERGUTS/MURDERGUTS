@@ -1,4 +1,5 @@
 call me Rufus!
+please read dni on my main strawpage before interacting.
 
 INFO:
 
