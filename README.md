@@ -4,7 +4,7 @@ INFO:
 
 - Is inspiration okay?
 Ask me personally. my style is definitely not consistent and i got so much shading styles, as i am experimenting (a lot) the way i shade depends on the character thats why it changes. do NOT colorpick, copy my style(s), or have a direct or indirect inspiration off my ponies. you can get inspiration if you ask me, i really dont mind.
-i go with whatever colors suits best with the character im making. i am experimental, therefore my style is not consistent. i can give advice, i dont mind. please, just ask nicely in ponytown or atabook.
+i go with whatever colors suits best with the character im making. i am experimental, therefore my style is not consistent. i can give advice, i dont mind once again. please, just ask nicely in ponytown or atabook.
 
 • i like roblox myths (i do not support some of them, or like most of them. my personal favorite is dr mosen) and slasher movies.
 
