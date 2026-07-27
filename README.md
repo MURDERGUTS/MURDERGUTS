@@ -1,6 +1,6 @@
 call me Rufus!
 please read dni on my main strawpage before interacting.
-; i do not care if you are a spam follower who is in my dni, i dont check spam accounts.
+; i do not care if you are a spam follower who is in my dni, i dont check followers.
 
 INFO:
 
