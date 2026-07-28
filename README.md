@@ -14,6 +14,6 @@ i go with whatever colors suits best with the character im making. i am experime
 do be very mindful and ask questions before fully interacting!! i dont want to hurt anyone, so please do not become my friend immediately, ask questions about boundaries or my interests to see if we get along! or just pretty much anything to get to know each other better
  ; i do not have any friends at the moment. 💔 so dont be scared to interact! its okay. 😭
 
-ps; i can be direct/flat/dissociative, unfiltered, or even factual at times. so be mindful on if youre making jokes (jokes that can be harmful mentally to someone or mean/toxic ones). just ignore me if anything changes or does happen that can potentially hurt you. if im overly enthusiastic or "too much," and you dont like it, then just dont interact with me. its simple as that.
+ps; i can be direct/flat/dissociative, unfiltered, or even factual at times. you dont have to match my pace, just dont be rude as a joke. ignore me if anything changes or does happen that can potentially hurt you. if im overly enthusiastic or "too much," and you dont like it, then just dont interact with me. its simple as that.
 i got short and long term memory loss, too. so i tend to forget things often. please remind me gently and politely, or even a direct response is appreciated.
 
