@@ -1,7 +1,7 @@
 call me Rufus!
 please read dni on my main strawpage before interacting.
 ; i do not care if you are a spam follower who is in my dni, i dont check profiles.
-(regarding this: if you want to be my friend but not actually try to get to know me and just keeping it simple like an 'oomf' mutual please dont ask to be my friend. im tired of it as someone who has no friends at the moment. ive only accepted 2 because i dont like declining anyone.
+(regarding this: if you want to be my friend but not actually try to get to know me and just keeping it simple like an 'oomf' mutual please dont ask to be my friend. im tired of it as someone who has no friends at the moment. ive only accepted 2 because i dont like declining anyone.)
 
 INFO:
 
