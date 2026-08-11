@@ -1,3 +1,4 @@
+_____________________________________________
 call me Rufus!
 please read dni on my main strawpage before interacting.
 ; i do not care if you are a spam follower who is in my dni, i dont check profiles.
@@ -18,4 +19,4 @@ do be very mindful and ask questions before fully interacting!! i dont want to h
 _____________________________________________
 ps; i can be direct/flat/dissociative, unfiltered, or even factual at times. ignore me if anything changes or does happen that can potentially hurt you in conversation. if im overly enthusiastic or "too much," and you dont like it, then just dont interact with me. its simple as that.
 my memory is shit. so i tend to forget things often. please remind me gently and politely, or even a direct response is appreciated.
-
+_____________________________________________
