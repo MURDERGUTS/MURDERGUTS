@@ -16,5 +16,5 @@ do be very mindful and ask questions before fully interacting!! i dont want to h
  
    ; i do not have any friends at the moment. 💔 so dont be scared to interact! its okay. 😭
 _____________________________________________
-ps; i can be direct/flat/dissociative, unfiltered, or even factual at times. ignore me if anything changes or does happen that can potentially hurt you in conversation. if im overly enthusiastic or "too much," and you dont like it, then just dont interact with me. its simple as that.
-my memory is shit. so i tend to forget things often. please remind me gently and politely, or even a direct response is appreciated.
+ps; i can be direct/flat/dissociative, unfiltered, or even ridiculously factual at times. if im overly enthusiastic or "too much," and you dont like it, then just dont interact with me. its simple as that.
+my memory is horrible. so, i tend to forget things often. please remind me patiently and politely, or even a direct response is appreciated.
