@@ -1,13 +1,13 @@
 ♧. . . hi guys im writing the media i like/fandoms im in okay its gonna take quite a while because of my memory issues plus its ridiculously long :'[
 ____________________________________________
-NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently so I may act very distant, detached, rude, aggressive, or even cold im sorry. :(( BUT thats when i usually have iwec OR iwcaution.
-
-◇ - or even emotional, overly sensitive, and dry.. i am a HSPs. please please take note of that, its already on my strawpage but i should mention here too just in case
-_____________________________________________
 ♤ call me Rufus!
 please read dni on my main strawpage before interacting.
 - i do not care if you are a spam follower who is in my dni, i dont check profiles.
 (regarding this: if you want to be my friend but not actually try to get to know me and just keeping it simple like an 'oomf' mutual please dont ask to be my friend if you only want me to be in your friends list but actually not get to know me i dont know why people are like that these days. im tired of it as someone who has no actual friends at the moment.)
+_____________________________________________
+NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently so I may act very distant, detached, rude, aggressive, or even cold im sorry. :(( BUT thats when i usually have iwec OR iwcaution.
+
+◇ - or even emotional, overly sensitive, and dry.. i am a HSPs. please please take note of that, its already on my strawpage but i should mention here too just in case
 _____________________________________________
 
 ◇ Is inspiration okay?
