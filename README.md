@@ -7,7 +7,7 @@ please read dni on my main strawpage before interacting.
 _____________________________________________
 NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently so I may act very distant, detached, rude, aggressive, or even cold im sorry. :(( BUT thats when i usually have iwec OR iwcaution.
 
-◇ - or even emotional, overly sensitive, and dry.. i am a HSPs. please please take note of that, its already on my strawpage but i should mention here too just in case
+◇ - or even emotional, overly sensitive, and self-deprecating.. i am a HSPs. please please take note of that, its already on my strawpage but i should mention here too just in case
 _____________________________________________
 
 ◇ Is inspiration okay?
