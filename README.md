@@ -1,5 +1,6 @@
 ♧. . . hi guys im writing the media i like/fandoms im in okay its gonna take quite a while because of my memory issues plus its ridiculously long :'[
 NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently so I may act very distant, detached, rude, aggressive, or even cold im sorry. :(( BUT thats when i usually have iwec OR iwcaution.
+
 ◇ - or even emotional, overly sensitive, and dry.. i am a HSPs. please please take note of that, its already on my strawpage but i should mention here too just in case
 _____________________________________________
 ♤ call me Rufus!
