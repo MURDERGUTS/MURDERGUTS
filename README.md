@@ -14,7 +14,7 @@ _____________________________________________
 
 Ask me personally. My style is definitely not consistent, and I have so many shading styles, as I am experimenting (a lot) the way I shade depends on the character, that's why it changes. Do NOT colorpick, copy any of my styles, or have a direct or indirect inspiration off my ponies (without permission). You can get inspiration if you ask me, I really don't mind.
 
-╰➤ I go with whatever colors suit best with the character I'm making. I am experimental (as i have said before), therefore, my style is not consistent. I can give advice, I don't mind once again. Please, just ask nicely in ponytown or atabook.
+╰➤ I go with whatever colors suit best with the character I'm making. I am experimental (as i have said before), therefore, my style is not consistent. I can give advice, I don't mind once again. Please, just ask nicely in ponytown or atabook. And I am a phone user.
 ____________________________________________
 ◇ Do talk to me please. I need friends. I love seeing people who have the same interests as me ^^ either in ponytown (I prefer whispers than public chat) or atabook. I'm a fast replier most of the time
 do be very mindful and again, read my strawpage before fully interacting!! I don't want to hurt anyone, so please do not become my friend immediately. Ask questions about my  boundaries(or tell me yours) or my interests to see if we get along! Or just pretty much anything to get to know each other better.
