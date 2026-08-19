@@ -11,6 +11,7 @@ NOTE: Interact with very extra care and caution. I am dealing with a lot of stuf
 ╰➤ or even emotional, overly sensitive, and self-deprecating. I am an HSPs. Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case.
 _____________________________________________
 ◇ Is inspiration okay?
+
 Ask me personally. My style is definitely not consistent, and I have so many shading styles, as I am experimenting (a lot) the way I shade depends on the character, that's why it changes. Do NOT colorpick, copy any of my styles, or have a direct or indirect inspiration off my ponies (without permission). You can get inspiration if you ask me, I really don't mind.
 
 ╰➤ I go with whatever colors suit best with the character I'm making. I am experimental (as i have said before), therefore, my style is not consistent. I can give advice, I don't mind once again. Please, just ask nicely in ponytown or atabook.
