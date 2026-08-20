@@ -11,6 +11,10 @@ _____________________________________________
 NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently, so I may act very distant, detached, rude, aggressive, or even cold. I'm sorry. :(( BUT that's when I usually have iwec OR iwcaution.
 
 ╰➤ or even emotional, overly sensitive, and self-deprecating. I am an HSP(hypersensitive person). Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case.
+
+╰➤ Does this mean I block freely?
+
+Yes. It completely does mean that. Either I do chat/requests/fully hidden.
 _____________________________________________
 ◇ Is inspiration okay?
 
