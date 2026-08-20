@@ -21,7 +21,7 @@ ____________________________________________
 ◇ Do talk to me please. I need friends. I love seeing people who have the same interests as me ^^ either in ponytown (I prefer whispers than public chat) or atabook. I'm a fast replier most of the time
 do be very mindful and again, read my strawpage before fully interacting!! I don't want to hurt anyone, so please do not become my friend immediately. Ask questions about my  boundaries(or tell me yours) or my interests to see if we get along! Or just pretty much anything to get to know each other better.
  
-╰➤ I do not have any friends at the moment, so don't be scared to interact! It's okay. 😭 (It's probably because I am quite a hard person to get along with due to certain boundaries, and because of my HPSs.)
+╰➤ I do not have any friends at the moment, so don't be scared to interact! It's okay. 😭 (It's probably because I am quite a hard person to get along with due to certain boundaries, and because of my HPSs.) So, yes, I'm scared of people sometimes and im a bit hard to get comfortable with, with certain people. I AM AN AMBIVERT, THOUGH! I'm just okay with having no friends because I used to be antisocial. 💔
 _____________________________________________
 ◇ PS; I can be direct/flat/dissociative, unfiltered, or even ridiculously factual at times. If I'm overly enthusiastic or "too much," and you don't like it, then just dont interact with me. It's as simple as that.
 My memory is horrible. So, i tend to forget things regularly. Please remind me patiently and politely, or even a direct response is appreciated. I have a very short temperament because of my disorders, which I do not feel comfortable sharing, and I'm shy when im drained.
