@@ -1,4 +1,4 @@
-♧. . . hi guys im writing the media i like/fandoms im in okay its gonna take quite a while because of my memory issues plus its ridiculously long :'[
+♧. . . hi guys im writing the media i like/fandoms im in okay its gonna take quite a while because of my memory issues plus its ridiculously long :'[ . . .♧
 
 ♧. . . i got like a hand problem on my dominant hand. definitely not getting into detail but it makes my gameplay a little difficult so please be patient with me . . .♧
 ____________________________________________
