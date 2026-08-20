@@ -12,9 +12,9 @@ NOTE: Interact with very extra care and caution. I am dealing with a lot of stuf
 
 ╰➤ or even emotional, overly sensitive, and self-deprecating. I am an HSP(hypersensitive person). Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case.
 
-╰➤ Does this mean I block often/freely?
+╰➤ Does this mean I may block a lot/freely?
 
-Yes. It completely does mean that. Either I do chat/requests/fully hidden.
+Yes. It completely does mean that.
 _____________________________________________
 ◇ Is inspiration okay?
 
