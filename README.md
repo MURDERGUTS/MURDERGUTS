@@ -1,6 +1,6 @@
 ♧. . . hi guys im writing the media i like/fandoms im in okay its gonna take quite a while because of my memory issues plus its ridiculously long :'[ . . .♧
 
-♧. . . higuys i have an arm splint on my dominant hand please be patient of my slowness or clumsiness . . .♧
+♧. . . higuys i have an arm splint on my dominant arm please be patient of my slowness or clumsiness . . .♧
 ____________________________________________
 ♤ Call me Rufus!
 Please read DNI on my main strawpage before interacting.
