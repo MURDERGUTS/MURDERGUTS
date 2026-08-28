@@ -8,9 +8,9 @@ Please read DNI on my main strawpage before interacting.
 ╰➤ I do not care if you are a spam follower who is in my DNI, I don't check profiles.
 (Regarding this: If you want to be my friend but not actually try to get to know me and just keeping it simple like an 'oomf'/mutual 'friendship', please don't ask to be my friend. (If you only want me to be in your friends list but actually not get to know me) I don't know why people are like that these days. I'm tired of it as someone who has no actual friends at the moment.)
 _____________________________________________
-NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently, so I may act very distant, detached, rude, aggressive, or even cold. I'm sorry. :(( BUT that's when I usually have iwec OR iwcaution.
+NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently, so I may act very distant, detached, rude, aggressive, or even cold. I'm sorry. :(( BUT that's when I usually have iwec OR iwcaution. If it's only 'iwc' I would be pretty aloof 😭.
 
-╰➤ or even emotional, overly sensitive, and self-deprecating. I am an HSP(hypersensitive person). Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case.
+╰➤ or even emotional, overly sensitive, and self-deprecating. I am an HSP(hypersensitive person). Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case. I AM NATURALLY A SHY MAN. YES, due to being an ambivert I CAN be social, but it does not mean I am not a very shy man in nature.
 
 ╰➤ Does this mean I may block a lot/freely?
 
