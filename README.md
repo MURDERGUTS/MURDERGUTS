@@ -10,7 +10,7 @@ Please read DNI on my main strawpage before interacting. And the information pro
 _____________________________________________
 NOTE: Interact with very extra care and caution. I am dealing with a lot of stuff currently, so I may act very distant, detached, rude, aggressive, or even cold. I'm sorry. :(( BUT that's when I usually have iwec OR iwcaution. If it's only 'iwc' Im just a exhausted or bored / sensitive.
 
-╰➤ or even emotional, overly sensitive, and self-deprecating. I am an HSP/s(highly sensitive person/s). Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case. I AM NATURALLY A SHY MAN. YES, due to being an ambivert I CAN be social, but it does not mean I am not a very shy man in nature.
+╰➤ or even emotional, overly sensitive, and self-deprecating. I am a HSP(highly sensitive person). Please, please take note of that. It's already on my strawpage, but I should mention it here, too, just in case. I AM NATURALLY A SHY MAN. YES, due to being an ambivert I CAN be social, but it does not mean I am not a very shy man in nature.
 
 ╰➤ Does this mean I may block a lot/freely?
 
