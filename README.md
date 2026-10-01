@@ -12,6 +12,8 @@ NOTE: Interact with very extra care and caution. I am dealing with a lot of stuf
 ╰➤ Does this mean I may block a lot/freely?
 
 Yes. It completely does mean that.
+
+pps; im usually a very chill and neutral guy 😭 i hope i come off as friendly i really do try to
 _____________________________________________
 ◇ Is inspiration okay?
 
