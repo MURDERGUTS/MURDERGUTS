@@ -1,6 +1,7 @@
 ... ♤ Call me Rufus!
 Please read DNI on my main strawpage before interacting. And the information provided in my README...
-
+(im sorry if this readme comes off as too serious or emotional i just had to put very important information!)
+_____________________________________________
 ╰➤ I do not care if you are a spam follower who is in my DNI, I don't check profiles.
 (Regarding this: If you want to be my friend but not actually try to get to know me and just keeping it simple like an 'oomf'/mutual 'friendship', please don't ask to be my friend. (e.g., if you only want me to be in your friends list but actually not get to know me), I don't know why people are like that these days. I'm tired of it as someone who has no actual friends at the moment.)
 _____________________________________________
